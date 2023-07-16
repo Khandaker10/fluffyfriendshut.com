@@ -1,2 +1,2 @@
-# fluffyfriendshut.com
+# v.snapchat.com
 takeover
